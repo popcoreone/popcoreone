@@ -1,6 +1,6 @@
 **We are popcore.**
 
-We work with digital artists and curate a community that values the true protential of the NFT.
+We enpower digital musicians and artists with NFT.
 
 
 
